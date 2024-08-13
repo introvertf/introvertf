@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @introvertf
+- 👋 Hi, I’m Francis
 - 👀 I’m interested in softwares and Databases...
 - 🌱 I’m currently learning Computer science and cyber security..
-- 💞️ I’m looking to collaborate on m...
-- 📫 How to reach me here's my whatsapp number 0705764209.
+- 💞️ I’m looking to collaborate on projects...
+- 📫 How to reach me here's my linked in profile link.
 - 😄 Pronouns:.he obviously 😂
 - ⚡ Fun fact: I love cats😩😸..
 
